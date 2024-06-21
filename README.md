@@ -1,7 +1,8 @@
 # ATLIQ-HARDWARE_-Sales
 
 
-![Uploading atliq-a-logo-04.png…]()
+![atliq-a-logo-04](https://github.com/datafitness/ATLIQ-HARDWARE_-Sales/assets/163381138/43e2f0b3-5832-49e5-8047-f2db9f0408c1)
+
 
 
 
